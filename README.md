@@ -2,6 +2,3 @@
 
 
 
-hjghjkbhjbjm
-jbkknmknjm,k
-nknmknmjknjk
